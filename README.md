@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @happysashimi
+- 👀 I’m interested in coding
+- 🌱 I’m currently learning css html js lua hash and more.
+- 💞️ I’m looking to collaborate on nothing lol
+- 📫 How to reach me nuh uh. 
+- 😄 Pronouns:im him
+- ⚡ Fun fact: im a minor.
